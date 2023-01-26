@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-26 | [Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)](https://cn.bing.com/th?id=OHR.BirksofAberfeldy_EN-US2525260479_UHD.jpg) 
+
 2023-01-24 | [Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SunriseMoai_EN-US2278287529_UHD.jpg) 
 
 2023-01-23 | [Mountain hare in Derbyshire, England (© Ben Hall/Minden Pictures)](https://cn.bing.com/th?id=OHR.YearRabbit_EN-US2153925391_UHD.jpg) 
