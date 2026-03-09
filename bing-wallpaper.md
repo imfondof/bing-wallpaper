@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-10 | [Gray seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_UHD.jpg) 
+
 2026-03-09 | [Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)](https://cn.bing.com/th?id=OHR.UlmClock_EN-US6692804943_UHD.jpg) 
 
 2026-03-07 | [The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg) 
